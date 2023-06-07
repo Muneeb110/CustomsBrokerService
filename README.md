@@ -55,4 +55,4 @@ This project is licensed under the **Proprietary** license.
 
 ## Contact
 
-For any inquiries or further information, please reach out to Muneeb Ur Rehman at muneeb110@live.com.
+For any inquiries or further information, please reach out to **Muneeb Ur Rehman** at muneeb110@live.com.
